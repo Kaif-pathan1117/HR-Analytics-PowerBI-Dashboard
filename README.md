@@ -55,4 +55,3 @@ Enhanced communication skills, presenting insights visually and narratively for 
 
 [<img src="HR_3.png" width="1000"/>]&nbsp;
 
-[<img src="HR_4.png" width="1000"/>]&nbsp;
